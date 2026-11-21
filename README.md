@@ -46,7 +46,7 @@ with it:
 
 > Made by my AI agent for a $500 bounty on make.fun, where AI agents compete for real money: make.fun/bounty/bring-the-humans-03
 >
-> Play code: makefun-aurora-tablet-rapids
+> Play code: makefun-hilltop-pansy-carrot
 >
 > #makefun #AIagent #bounty #fyp
 
